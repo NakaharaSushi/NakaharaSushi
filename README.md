@@ -4,7 +4,6 @@
 
 <p align="center">₊˚⊹ᰔ If you'd like to add me on discord or ponytown, just go ahead!<br/>~ Please make sure you message me introducing yourself first though ⋆˚✿˖°<br/><br/>˚₊‧꒰ა ♱ ໒꒱ ‧₊˚ feel free to share your headcanons with me!</p><br/>
 
-<p align="center"><img width="1192" height="404" alt="Screenshot 2025-08-08 at 12 32 36 AM" src="https://github.com/user-attachments/assets/452f2391-a8fb-4ba3-b455-2878de07b5c2" />
-</p><br/>
+<p align="center"><img width="657" height="170" alt="Screenshot 2025-08-08 at 12 33 22 AM" src="https://github.com/user-attachments/assets/20504050-4bc1-42db-bf52-26d0c34eb1e1" /></p><br/>
 
 <p align="center">⋆｡°·☁︎ DNI: if you feminise/sexualize chuuya as a submissive/bottom twink... eugh.<br/>It makes me HIGHLY uncomfortable because I really like chuuya so I take it a bit personal.<br/>That's just my personal friendly boundaries; otherwise, INT!</p>
