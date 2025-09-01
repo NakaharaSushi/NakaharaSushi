@@ -1,7 +1,7 @@
 <p align="center">˚ʚ♡ɞ˚ Good evening! Please read: ˚ʚ♡ɞ˚<br/></p>
 
 <p align="center"><img width="528" height="339" alt="Screenshot 2025-09-01 at 9 58 46 AM" src="https://github.com/user-attachments/assets/da48d8ef-b771-4a60-b314-b52124d65c27" />
-</p>
+</p><br/>
 
 <p align="center">˚ʚ♡ɞ˚</p><br/>
 
@@ -15,4 +15,4 @@
 <p align="center">˚ʚ♡ɞ˚</p><br/>
 
 <p align="center"><img width="517" height="339" alt="Screenshot 2025-09-01 at 10 02 38 AM" src="https://github.com/user-attachments/assets/2eba94d2-abe2-4b85-b458-08b71f707856" />
-</p>
+</p><br/>
