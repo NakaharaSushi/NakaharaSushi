@@ -1,4 +1,4 @@
-<p align="center">˚ʚ♡ɞ˚ Good evening! Please read to INT ˚ʚ♡ɞ˚<br/></p>
+<p align="center">˚ʚ♡ɞ˚ Good evening! Please read: ˚ʚ♡ɞ˚<br/></p>
 <p align="center"><img width="666" height="146" alt="Screenshot 2025-08-08 at 12 30 18 AM" src="https://github.com/user-attachments/assets/086c13be-24c3-4a47-8ac9-35a3a2cec84a" />
 </p>
 
