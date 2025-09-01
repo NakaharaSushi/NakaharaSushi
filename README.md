@@ -8,5 +8,6 @@
 
 <p align="center">⋆｡°·☁︎ DNI: if you feminise/sexualize chuuya as a submissive/bottom twink... I block my dnis freely. Don't even joke about it please! <br/>It makes me HIGHLY uncomfortable because he's my main kin so I take it a bit personal.<br/>That's just my friendly boundaries; otherwise, INT!</p>
 
+
 <p align="center"><img width="517" height="339" alt="Screenshot 2025-09-01 at 10 02 38 AM" src="https://github.com/user-attachments/assets/2eba94d2-abe2-4b85-b458-08b71f707856" />
 </p>
