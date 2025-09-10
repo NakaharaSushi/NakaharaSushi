@@ -10,7 +10,7 @@
 
 <p align="center">˚ʚ₊˚⊹ᰔ⊹˚₊ɞ˚</p><br/>
 
-<p align="center">⋆｡°·☁︎ DNI: if you feminise/sexualize chuuya as a submissive/bottom twink... I block my dnis freely. Don't even joke about it please! <br/>It makes me HIGHLY uncomfortable because he's my main kin so I take it a bit personal.<br/>That's just my friendly boundaries; otherwise, INT!</p><br/>
+<p align="center">⋆｡°·☁︎ DNI: bottom chuuya things. I block my dnis freely. Don't even joke about it. <br/>It makes me HIGHLY uncomfortable because he's my main kin, so I take it personally.<br/>That's just my friendly boundaries; otherwise, interact</p><br/>
 
 <p align="center">˚ʚ♡ɞ˚</p><br/>
 
